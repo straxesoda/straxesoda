@@ -1,5 +1,5 @@
 <div align="center">
-  <img width="2048" alt="image" src="https://github.com/user-attachments/assets/f83d7ba0-b07e-4a5d-81ff-5de910cb902e" />
+
 
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=46474f&center=true&vCenter=true&width=435&lines=soda+or+pony+cosplay+im+sitting+as;this+git+is+mostly+for+pony+town" alt="Typing SVG" /></a>
 </div>
