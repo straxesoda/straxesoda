@@ -33,18 +33,6 @@ $\text{\color{#656b75} discord: straxesoda}$
 
 <div align="center">
 
-[my partner](https://github.com/spokeizhere)
-
-</div>
-
-<img width="700" height="555" alt="bhjnkl;" src="https://github.com/user-attachments/assets/c70f7889-e2aa-47e4-a59c-c2240acbaefa" />
-
-<details>
-<summary>$${\Huge\color{b6b7ad}\textbf{🐰}}$$</summary>
-
-$\text{\color{c4c594} Not in the slightest, dearie.}$
-
-<img width="130" height="100" alt="tumblr_b2a135bff92518933d4fd30e0faab930_20752828_640" src="https://github.com/user-attachments/assets/d57e762b-4304-445b-83ad-222620d06af6" />
 
 </details>
 
