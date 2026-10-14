@@ -15,7 +15,7 @@ $\text{\color{#656b75} 22 september russian}$\
 $\text{\color{#656b75} demiaroace abrosexual genderfluid }$\
 $\text{\color{#656b75} not taken ok }$
 
-$\text{\color{#656b75} c+h friendly}$\
+$\text{\color{#656b75} ROLEPLAY friendly}$\
 $\text{\color{#656b75} offtab most of the time so w2i}$\
 $\text{\color{#656b75} discord: straxesoda}$
 
