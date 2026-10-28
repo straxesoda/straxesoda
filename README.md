@@ -4,7 +4,8 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=46474f&center=true&vCenter=true&width=435&lines=strax+or+pony+cosplay+im+sitting+as;this+git+is+mostly+for+pony+town" alt="Typing SVG" /></a>
 </div>
 <div align="center">
-<img width="155" alt="image" src="https://github.com/user-attachments/assets/b2dc7c5d-90e7-4793-9958-095b786fe6d2" />
+Demand legal action against the Cornell Seven, University, and 50 other men in group chat
+  https://www.change.org/p/demand-legal-action-against-the-cornell-seven-university-and-50-other-men-in-group-chat
 
 
 ---
