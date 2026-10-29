@@ -12,6 +12,5 @@
     </td>
   </tr>
 </table>
-<p align="center"><img width="150" height="20" alt="tumblr_40a354e63c8168c8b9337a91e8d5bb94_39dad032_250" src="https://github.com/user-attachments/assets/1fa69efb-8f8d-4fa1-b175-fa0bcdce9587" />
-
+<p align="center"><img width="150" height="20" alt="tumblr_2acfed99ea8902cb5853382477c06fa5_2f2a290a_250" src="https://github.com/user-attachments/assets/cfd6dd97-0fcf-44c2-8aba-0f8b850123e9" />
 <img width="2000" height="1400" alt="image" src="https://github.com/user-attachments/assets/1ebc20d3-c42f-49e6-8e3b-f7703cce3548" />
